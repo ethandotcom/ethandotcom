@@ -1,0 +1,26 @@
+## 𐙚 hello i'm ethan! 𐙚
+୨ৎ i like my friends, cats, music, and video games
+<br/>♪ i also go by my kins' names. (eg. pomni, hanako, dazai, etc! i'll love u forever if u refer to me as them esp when i'm dressed as them in game)
+<br/>⊹ dni criteria: proshippers, ed jokes, racists/homophobes (duh.)
+
+★ my favorites:
+<br/>characters: pomni, dazai, kunikida, hanako, yashiro, sonic, twilight sparkle, maya fey, phoenix wright, badboyhalo, skeppy, tommy, tubbo, mami tomoe, chisato, aubrey, kel
+<br/>ships: funnybunny(doll), kunikidazai, hananene, mitsukou, pegoryu, sonadamy, mlp polyship(s), krusiellerdly, narumitsu, franmaya(maybe), skephalo, chisataki(maybe)
+
+𖦹 i like meaningless personality stuff. i'm an entp, need to retake enneagram... true neutral i think
+<br/>ꫂ᭪
+<br/>☆ my discord is "tonicblue"! feel free to add me i don't bite :))
+<!--
+**ethandotcom/ethandotcom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
