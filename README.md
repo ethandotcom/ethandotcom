@@ -5,7 +5,7 @@
 
 ★ my favorites:
 <br/>characters: pomni, dazai, kunikida, hanako, yashiro, sonic, twilight sparkle, tanjiro, inosuke, zenitsu, maya fey, phoenix wright, badboyhalo, skeppy, tommy, tubbo, mami tomoe, chisato, aubrey, kel
-<br/>ships: funnybunny(doll), kunikidazai, hananene, mitsukou, pegoryu, sonadamy, mlp polyship(s), krusiellerdly, narumitsu, franmaya(maybe), skephalo, chisataki(maybe)
+<br/>ships: funnybunnydoll, kunikidazai, akuatsulucy, hana(kou)nene, mitsukou, pegoryu, sonadamy, mlp polyship(s), krusiellerdly, narumitsu, franmaya(maybe), skephalo, chisataki(maybe)
 
 𖦹 i like meaningless personality stuff. i'm an entp, need to retake enneagram... true neutral i think
 <br/>ꫂ᭪
