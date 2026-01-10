@@ -1,10 +1,10 @@
 ## 𐙚 hello i'm ethan! 𐙚
 ୨ৎ i like my friends, cats, music, and video games
-<br/>♪ i also go by my kins' names. (eg. pomni, hanako, dazai, etc! i'll love u forever if u refer to me as them esp when i'm dressed as them in game)
+<br/>♪ i also go by my kins' names. (eg. pomni, max, hanako, dazai, etc! i'll love u forever if u refer to me as them esp when i'm dressed as them in game)
 <br/>⊹ dni criteria: proshippers, ed jokes, racists/homophobes (duh.)
 
 ★ my favorites:
-<br/>characters: pomni, dazai, kunikida, atsushi, akutagawa, lucy, hanako, yashiro, sonic, twilight sparkle, tanjiro, inosuke, zenitsu, maya fey, phoenix wright, badboyhalo, skeppy, tommy, tubbo, mami tomoe, chisato, aubrey, kel
+<br/>characters: pomni, max, dazai, kunikida, atsushi, akutagawa, lucy, hanako, yashiro, sonic, twilight sparkle, tanjiro, inosuke, zenitsu, maya fey, phoenix wright, badboyhalo, skeppy, tommy, tubbo, mami tomoe, chisato, aubrey, kel
 <br/>ships: funnybunnydoll, abstragedy, kunikidazai, akuatsulucy, hana(kou)nene, mitsukou, pegoryu, sonadamy, mlp polyship(s), krusiellerdly, narumitsu, franmaya(maybe), skephalo, chisataki(maybe)
 
 𖦹 i like meaningless personality stuff. i'm an entp, need to retake enneagram... true neutral i think
